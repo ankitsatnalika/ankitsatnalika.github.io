@@ -1,1 +1,0 @@
-# ankitsatnalika.github.io
